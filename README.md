@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wainmurk
-- 📫 How to reach me murk#7898
+- 📫 How to reach me: Dicord: @wainmurk
 
 <!---
 Wainmurk/Wainmurk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
